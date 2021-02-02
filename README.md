@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 🎗️
 I'm  sudhanshu currently a second year student at ASM-Csit, besides having a passion towards my core subjects😁, I love coding 💻
 
 💻 Aspiring Software engineer 
