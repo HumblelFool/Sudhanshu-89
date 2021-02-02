@@ -11,6 +11,6 @@ I'm  sudhanshu currently a second year student at ASM-Csit, besides having a pas
 
 - 💬 Ask me about Programming language, electronic systems 
 
-- 😄 Pronouns: ...b
-- ⚡ Fun fact: ...
+- 😄 Pronouns:
+- ⚡ Fun fact: 
 -->
