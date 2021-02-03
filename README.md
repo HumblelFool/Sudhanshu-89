@@ -7,6 +7,6 @@ I'm  sudhanshu currently a second year student at ASM-Csit, besides having a pas
 
  💬 Ask me about Programming language, electronic systems 
  
- 🎓 Problem Solver ||Quick learner 
+ Adjectives 🙆‍♂️ Problem Solver👨‍🎓 ||Quick learner 
 
 
